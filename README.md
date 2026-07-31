@@ -1,4 +1,4 @@
-### Hi, im Ellie 
+### Hi, im Amelia
 
 #### (otherwise known as n104ap, after my most owned iPhone, prev ElliesSurviving)
 
